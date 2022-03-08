@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @USER-Dell-SRB
 - 👀 I’m interested in coding, games, drawings, hacking XD (jk).
-- 🌱 I’m currently learning coding Language such as C++, c, c# & python
+- 🌱 I’m currently learning coding Language such as C++, C, C# & python
 - 💞️ I’m looking for love (jk)
 - 📫 How to reach me : on revolt :| (i dont use discord) USER_Dell_SRB
 
